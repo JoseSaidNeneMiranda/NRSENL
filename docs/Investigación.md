@@ -1,0 +1,1 @@
+investigar como o que resuelva la ecuacion
